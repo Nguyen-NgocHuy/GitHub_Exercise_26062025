@@ -1,0 +1,1 @@
+Why did the robber jump in the shower? He wanted to make a clean getaway.
